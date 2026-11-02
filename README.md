@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Shrut shah
-- 👀 I’m interested in Computer
 - 🌱 I’m currently learning Bsc.it
-- 💞️ I’m looking to collaborate in Business
+- 💞️ I’m looking for job
 - 📫 How to reach me contact no.7016311667
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
